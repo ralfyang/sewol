@@ -6,9 +6,12 @@
 
 ## 관련 Link
 ### Wiki
+* 새월호 침몰사고
+ * https://ko.wikipedia.org/wiki/세월호_침몰_사고
+ * https://ko.wikipedia.org/wiki/세월호_침몰_사고_관련_논란
+ * https://ko.wikipedia.org/wiki/세월호_참사_특별조사위원회_청문회
 * Sinking of MV Sewol
  * https://en.wikipedia.org/wiki/Sinking_of_MV_Sewol
-  
  
 ### 관련 이미지
 * 구글 이미지 검색:
