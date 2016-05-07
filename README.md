@@ -6,7 +6,7 @@
 
 ## 관련 Link
 ### Wiki
-* 새월호 침몰사고
+* 세월호 침몰사고
  * https://ko.wikipedia.org/wiki/세월호_침몰_사고
  * https://ko.wikipedia.org/wiki/세월호_침몰_사고_관련_논란
  * https://ko.wikipedia.org/wiki/세월호_참사_특별조사위원회_청문회
